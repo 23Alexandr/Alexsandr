@@ -3,7 +3,4 @@ xXxndrdcsdsaddadsxadcd
 sdsds
 cxcszxxaasdaq
 исиавпвwdwaSASaS
-thdvcbxfbf
-bfbfvdv
-ghfdggb
-bvcbvcbc
+thdvcbxfb
