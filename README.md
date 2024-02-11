@@ -3,6 +3,4 @@ xXxndrdcsdsaddadsxadcd
 sdsds
 cxcszxxaasdaq
 jfhdzgzDS
-исиаdsaccdcd
-впвwdwaSASaS
-thdvcbxfb
+ис
